@@ -4,5 +4,6 @@
 - 💞️ I’m always open for interesting projects so feel free to get in touch
 - 📫 You can reach me here:
 - Email: dsukhorukov16@gmail.com
+- Telegram: t.me/frudee
 
 
